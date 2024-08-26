@@ -1,1 +1,1 @@
-# Virtual_Internship__and_Certifications-
+# Virtual_Internship_and_Certifications
